@@ -1,4 +1,4 @@
-2023-07-15
+Talon Vanderbeken | 2023-07-15
 
 # A Word of Advice
 
