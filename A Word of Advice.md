@@ -4,7 +4,7 @@ Talon Vanderbeken | 2023-07-15
 
 Don't give up, do your best, and accept the outcome. Your life is a miracle, and you'll only have one chance at it. Every moment that goes by, your window into that opportunity shrinks; your life will end, and it may end tomorrow, or even today: this may be your last opportunity to do good with what you have.
 
-You exist in the most unique possible way. You can let other people take advantage of that, or you can adopt responsibility and hold yourself accountable for yourself. No one else is you, no one else will ever have everything you do in the way that you have it. Your past, your present, your future, your self, your thoughts, your dreams, your aspirations. The only person who can do anything with it is you, you're the only person who can make it any of it meaningful.
+You exist in the most unique possible way. You can let other people take advantage of that, or you can adopt responsibility and hold yourself accountable for yourself. No one else is you, no one else will ever have everything you do in the way that you have it. Your past, your present, your future, your self, your thoughts, your dreams, your aspirations. The only person who can do anything with it is you, you're the only person who can make any of it meaningful.
 
 There is nothing meaningful in never having accomplished anything, and you will never have accomplished something if you have never struggled, but if you do struggle, for whatever reason, and you make it through, you will then have accomplished something. Existing without a struggle is living your life as if you are an infant with a pacifier.
 
