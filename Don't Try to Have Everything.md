@@ -1,6 +1,6 @@
 Talon Vanderbeken | 2023-07-24
 
-# A Word of Advice
+# Don't Try to Have Everything
 
 You may look at the rich and say "man, don't they just have everything," and sure, they certainly have a lot. They definitely have more money than you, you wouldn't be calling them rich if they didn't. Sure, they definitely have the economic front covered, currently, yet they too have their fair share of problems. Don't forget, having money is challenging; where is all yours?
 
